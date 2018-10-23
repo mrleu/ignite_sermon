@@ -1,4 +1,4 @@
-# Daniels 2 Notes
+# Daniels 2:1-30  Notes
 Alex Leu
 
 Some Context
@@ -70,6 +70,7 @@ verse 10 - 11
 - Arioch said "I have found". He is claiming credit, but Daniel gave it elsewhere
 - reminded me of verse 10. Chaldeans said not a man on earth can meet King's demand, but a person who has the relationship with God can
 
+## Note: Please Stop here. This is next week!
 31 - 42
 Image of the dream
 
