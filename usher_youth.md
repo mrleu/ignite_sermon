@@ -3,7 +3,9 @@ Usher Chat
 
 ## Purpose:
   The goal of this is to present what the ushers do in ignite. The key is to show that there is many parallels between the ignite ushers and youth ushers. We are part of the same church. Also highlight why people(me as an case anecdote) wanted to serve in usher-ship.
+
   Purpose of the workshop is as follows:
+
     1. Provide example for heart behind ushering -- why I became an usher.
     2. Provide some general guidelines of ushering -- what my philosophy on ushers.
     3. Practical Examples for people to learn/do.
