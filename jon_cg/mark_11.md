@@ -25,6 +25,9 @@ Palm Monday.
 
 so they took branches from the Palm and Olive Trees that lined the road. 
 
+JOHN 3:16
+At first his disciples did not understand all this. Only after Jesus was glorified did they realize that these things had been written about him and that these things had been done to him.
+
 ### Meaning of Hosanna 
   It means Save us.save, rescue, savior"
   Save us from what? defeat romans
