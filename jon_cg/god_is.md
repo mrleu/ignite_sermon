@@ -6,8 +6,7 @@
 
 ## Context - reading ephesians
 - written by paul for churches in ephesus
-- leading city in roman empire, located in present day turkey
-- cyclical letter
+- leading city in roman empire, located in present day turkey - cyclical letter
 
 ## Read ephesiasn 2:1-10
 
@@ -44,4 +43,22 @@ Question for reflection
 3. pray for someone you can give grace
 4. who do u need to be merciful to?
 
+Reminds me of the sinner's prayer.
 
+
+Q1
+What was life like before christ?
+1. following the social cultural norm.
+1. follow a lot of what the media said, and what my cultural have defined as acceptable.
+1. full of boast of myself
+
+After christ
+1. undrstanding my own identity
+1. understanding to be humble
+
+Q2 how did you first experience God? did we all experience god growing up? or was there a moment that we understood god's mercy?
+
+Q3 what do you think God has prepared in good works for you to do?
+1. serve god
+
+Q4: split to smaller groups to catch up.
