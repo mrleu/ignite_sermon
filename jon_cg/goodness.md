@@ -19,22 +19,38 @@ What makes someone good?
 
 What is goodness?
 1. it's an action.
+total devotional to GOd in action.
+virtue, morally excellence to the goodness of God
+
+everyone is attracted to good people. everyone is attracted to GOd.
+
+do we believe that GOd is good?
 
 Luke 10:29-37 ESV
+psalm 37:3
+ephesian 2:10
 
 Applicational:
 Who has God used to show goodness to you in your life? 
 
 Of the three characteristics of the Good Samaritan–compassion, extravagant giving, and generous investment of time–which is most difficult for you to show? 
 
+How can we do good? how well do i trust in God when life does not go well.
+
 Goodness
 ```
  In Greek, the word goodness, “agathosune,” means “an uprightness of heart and life
  ```
+ agatha means good
+
+ used to describe his nature.
 
 ```
 5 For this very reason, make every effort to add to your faith goodness; and to goodness, knowledge; 6 and to knowledge, self-control; and to self-control, perseverance; and to perseverance, godliness; 7 and to godliness, mutual affection; and to mutual affection, love.`
 ```
+
+why do we not excited to be good?
+1. growing up our parents tell us to be good.
 
 lots of steps from faith -> love.
 why does goodness needs to be first?
@@ -46,6 +62,12 @@ When we act out of true goodness of the heart, we are obedient to God’s comman
     - life of jesus christ
         - good shepherd
         - good samaritan
+
+no one is good, but god, but now you should good.
+    - new creature in christ
+    - expected for us to be good.
+
+michael jackson sings bad.
 
 ## Read 2 Peter 1:5-7
 
@@ -95,3 +117,7 @@ selflessly acting on behalf of others.*
 ```
 
 Jesus collected and helped the sick for the good of others.
+
+information alone is not for spiritual growth.
+
+make jesus christ your god, you'd be more  connected with god.
