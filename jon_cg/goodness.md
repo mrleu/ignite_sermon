@@ -26,16 +26,14 @@ everyone is attracted to good people. everyone is attracted to GOd.
 
 do we believe that GOd is good?
 
+Good Samaritan
 Luke 10:29-37 ESV
+
 psalm 37:3
+`Trust in the LORD and do good; dwell in the land and enjoy safe pasture`
+
 ephesian 2:10
-
-Applicational:
-Who has God used to show goodness to you in your life? 
-
-Of the three characteristics of the Good Samaritan–compassion, extravagant giving, and generous investment of time–which is most difficult for you to show? 
-
-How can we do good? how well do i trust in God when life does not go well.
+`10 For we are God’s handiwork, created in Christ Jesus to do good works, which God prepared in advance for us to do.`
 
 Goodness
 ```
@@ -45,6 +43,9 @@ Goodness
 
  used to describe his nature.
 
+
+## PAssage to go through
+## Read 2 Peter 1:5-7
 ```
 5 For this very reason, make every effort to add to your faith goodness; and to goodness, knowledge; 6 and to knowledge, self-control; and to self-control, perseverance; and to perseverance, godliness; 7 and to godliness, mutual affection; and to mutual affection, love.`
 ```
@@ -68,12 +69,6 @@ no one is good, but god, but now you should good.
     - expected for us to be good.
 
 michael jackson sings bad.
-
-## Read 2 Peter 1:5-7
-
-```
-For this very reason, make every effort to add to your faith goodness; and to goodness, knowledge; 6 and to knowledge, self-control; and to self-control, perseverance; and to perseverance, godliness; 7 and to godliness, mutual affection; and to mutual affection, love.
-```
 
 What Peter wrote.
 
@@ -121,3 +116,10 @@ Jesus collected and helped the sick for the good of others.
 information alone is not for spiritual growth.
 
 make jesus christ your god, you'd be more  connected with god.
+
+Applicational:
+Who has God used to show goodness to you in your life? 
+
+Of the three characteristics of the Good Samaritan–compassion, extravagant giving, and generous investment of time–which is most difficult for you to show? 
+
+How can we do good? how well do i trust in God when life does not go well.
