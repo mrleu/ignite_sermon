@@ -1,11 +1,12 @@
+# Goodness
+
 fruit of the Spirit (Galatians 5:22–23)
 But the fruit of the Spirit is love, joy, peace, forbearance, kindness, goodness, faithfulness, 23 gentleness and self-control. Against such things there is no law.
 
-# Goodness
-
 Open question:
+
 ```
-A story is told in the book of Mark where a man comes to Jesus and says, “Good teacher, what must I do to inherit eternal life?” Jesus responds, saying, “No one is good except God alone.” (Mark 10) Do you agree? What makes someone good?
+A 10 For we are God’s handiwork, created in Christ Jesus to do good works, which God prepared in advance for us to do.story is told in the book of Mark where a man comes to Jesus and says, “Good teacher, what must I do to inherit eternal life?” Jesus responds, saying, “No one is good except God alone.” (Mark 10) Do you agree? What makes someone good?
 ```
 
 What makes someone good?
